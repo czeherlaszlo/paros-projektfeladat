@@ -8,3 +8,5 @@ A fiú közelebb hajolt a plakáthoz és észrevette, hogy az egyik sarkába egy
 A szeme sarkából mozgást látott, mintha az egyik asztal mögött egy árnyék suhant volna el - de az árnyék nem tartozott senkihez.
 A fiú ösztönösen az árnyék irányába lépett, de amint megkerülte az asztalt, ott nem volt semmi – csak egy fakanál feküdt a földön.
 Ahogy lehajolt, hogy felvegye, az árnyék újra megjelent a falon, ezúttal már emberi alakot öltve: egy fiú volt az, aki kísértetiesen hasonlított rá.
+A fiú döbbenten nézte a falon vibráló alakot, amely minden mozdulatát utánozta, mintha csak a tükörképe lenne.
+Az alak pár pillanattal később megemelte karját, majd a menzai lámpák kihunytak, és a terem egy néma, időtlen térbe zuhant.

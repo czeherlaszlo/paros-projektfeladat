@@ -12,3 +12,5 @@ A fiú döbbenten nézte a falon vibráló alakot, amely minden mozdulatát utá
 Az alak pár pillanattal később megemelte karját, majd a menzai lámpák kihunytak, és a terem egy néma, időtlen térbe zuhant.
 A fiú teljesen elvesztette az időérzékét, majd döbbenten állt a sötétségben, ahol a kihunyt menzai lámpák által uralt csendben az idő mintha lelassult volna, nem hallott semmit, nem érzett semmit-csak a saját szívverését.
 Ekkor egy halk, titokzatos hang törte meg a nyugalmat, mintha az idő mély titkait suttogta volna, és az árnyak új, rejtélyes történetre hívnák őt: - "Az idő visszaköveteli azt, ami az övé volt!"
+A fiú lassan kiegyenesedett, kezében szorítva a fakanalat, amely most már hidegen vibrált mintha magába szívta volna az idő szavait.
+Egy lépést tett az árny felé, majd ekkor minden visszazökkent a jelenbe - újra ott állt a jelen menzáján, de úgy érezte mintha valami mégis más lenne.

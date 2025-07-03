@@ -15,7 +15,7 @@ Merge conflict szerencsére nem alakult ki, de szükség esetén közösen oldot
 - Illés Eliz – 10 commit
 
 ## Követelmények teljesítése
-✅ `story.md` fájl tartalmazza a teljes történetet  
-✅ Legalább 20 commit (10-10)  
-✅ `.gitignore` fájl kizárja a `.git` mappát  
-✅ Ez a `README.md` fájl dokumentálja a közös munkát
+- `story.md` fájl tartalmazza a teljes történetet  
+- Legalább 20 commit (10-10)  
+- `.gitignore` fájl kizárja a `.git` mappát  
+- Ez a `README.md` fájl dokumentálja a közös munkát

@@ -16,3 +16,5 @@ A fiú lassan kiegyenesedett, kezében szorítva a fakanalat, amely most már hi
 Egy lépést tett az árny felé, majd ekkor minden visszazökkent a jelenbe - újra ott állt a jelen menzáján, de úgy érezte mintha valami mégis más lenne.
 Észrevette, hogy a fakanál nyele apró rovátkákkal van tele – mintha valaki üzenetet vésett volna bele.
 Remegő ujjakkal végigsimította a jeleket, amelyek lassan kirajzolták: „Csütörtökönként nyílik az átjáró.”
+A fiú körbenézett a menzán, ahol minden ismerős volt, ám mégis egy árnyalatnyival sötétebb.
+És mikor leült egy tál krumplifőzelék mellé, tudta, hogy minden csütörtök csak egy következő lehetőség - vagy figyelmeztetés.

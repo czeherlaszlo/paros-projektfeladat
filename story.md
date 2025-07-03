@@ -14,3 +14,5 @@ A fiú teljesen elvesztette az időérzékét, majd döbbenten állt a sötéts�
 Ekkor egy halk, titokzatos hang törte meg a nyugalmat, mintha az idő mély titkait suttogta volna, és az árnyak új, rejtélyes történetre hívnák őt: - "Az idő visszaköveteli azt, ami az övé volt!"
 A fiú lassan kiegyenesedett, kezében szorítva a fakanalat, amely most már hidegen vibrált mintha magába szívta volna az idő szavait.
 Egy lépést tett az árny felé, majd ekkor minden visszazökkent a jelenbe - újra ott állt a jelen menzáján, de úgy érezte mintha valami mégis más lenne.
+Észrevette, hogy a fakanál nyele apró rovátkákkal van tele – mintha valaki üzenetet vésett volna bele.
+Remegő ujjakkal végigsimította a jeleket, amelyek lassan kirajzolták: „Csütörtökönként nyílik az átjáró.”
